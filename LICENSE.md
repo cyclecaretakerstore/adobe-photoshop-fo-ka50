@@ -1,4 +1,4 @@
-
+Enhance Adobe Photoshop for macOS with Adobe Photoshop for macOS secure Action - AI-assisted design and collaboration, the #1 action. Includes AI-assisted design and collaboration
 
 
 
